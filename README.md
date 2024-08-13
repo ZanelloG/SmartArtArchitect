@@ -68,8 +68,8 @@ Here’s how we work with our clients to ensure a smooth and successful project:
 
 Ready to take your NFT project to the next level? Contact me today to discuss your needs and get started!
 
-- **Email:** [your-email@example.com](mailto:giosuezanello1@gmail.com) 
-- **Twitter:** [@YourTwitterHandle](https://twitter.com/giosue_zanello)
+- **Email:** [giosuezanello1@gmail.com](mailto:giosuezanello1@gmail.com) 
+- **Twitter:** [@giosue_zanello](https://twitter.com/giosue_zanello)
 
 ---
 
